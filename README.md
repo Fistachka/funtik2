@@ -24,6 +24,8 @@
 Horosho brodit' po svetu
 S karamel'koj za shchekoj
 A eshchyo odnu dlya druga
+![з5](https://github.com/user-attachments/assets/d54a16db-dfe9-48f2-b4c1-5a180000b998)
+![з4](https://github.com/user-attachments/assets/2be3ba27-be51-43aa-83e2-d8139aacfb4e)
 Vzyat' v karmashek pro zapas
 
 Potomu chto, potomu chto
