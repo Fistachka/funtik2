@@ -2,7 +2,7 @@
 
 ![з5](https://github.com/user-attachments/assets/d54a16db-dfe9-48f2-b4c1-5a180000b998)
 
-<iframe width="315" height="560" src="https://www.youtube.com/embed/3cbO-7EmhvE" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="315" height="560" src="https://www.youtube.com/embed/KAPaPAYSA3k" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 Хорошо бродить по улице
 С тёплым кроликом за пазухой
@@ -21,7 +21,7 @@
 
 ![з5](https://github.com/user-attachments/assets/d54a16db-dfe9-48f2-b4c1-5a180000b998)
 
-<iframe width="315" height="560" src="https://www.youtube.com/embed/MtLR7r-Mlbc" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="315" height="560" src="https://www.youtube.com/embed/r7ld8WbAkN4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 Horosho brodit' po ulice
 S tyoplym krolikom za pazuhoj
